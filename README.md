@@ -8,12 +8,8 @@
 <p align="center">
   <span style="color:#B94909;" width="2000"/>
    ᶻ 𝗓 𐰁
-<p align="center">
-  <img src="https://www.image2url.com/r2/default/images/1782671999118-07ebd061-5958-483d-a2e8-891cffbd9e46.png" 
-       alt="Jimmy and partner" 
-       width="520" 
-       style="max-width: 100%; height: auto; border-radius: 12px;">
-</p>
+
+  <img src="https://www.image2url.com/r2/default/images/1782672745241-cbfbfa63-65af-4b20-99c4-845416198eda.png" alt="image" />
     
   <a href="https://jimmyiktt.atabook.org/" target="_blank">ata</a> . <a href="https://guns.lol/jimmyiktt" target="_blank">gunlol</a> . <a href="https://prns.cc/dxlsc" target="_blank">pronouns</a> </p>
 <p align="center" style="color:#B94909;">
