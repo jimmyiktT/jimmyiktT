@@ -1,4 +1,4 @@
-<img src="https://komarev.com/ghpvc/?username=JimmyiktT&label=Nepeta&color=3E6400">
+<img src="https://komarev.com/ghpvc/?username=JimmyiktT&label=Nepeta&color=C9CBDD">
 <p align="center">
   <span style="color:#B94909;" width="2000"/>
    ᶻ 𝗓 𐰁
