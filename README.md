@@ -19,3 +19,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dhsjtjf7kgzb7iwimkko73gbni&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=true">
   </a>
 </p>
+
+
+Hii.. so there's Art by my friends for me, so i'm going put it there! thanks!
+<img src="https://www.image2url.com/r2/default/images/1782775371597-14d5440c-e385-4904-bd65-d2733dc99cee.jpeg" alt="image" width="400" /> cr.watcherbittes you have such a lovely style..
