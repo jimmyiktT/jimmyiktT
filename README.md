@@ -22,4 +22,5 @@
 
 
 Hii.. so there's Art by my friends for me, so i'm going put it there! thanks!
-<img src="https://www.image2url.com/r2/default/images/1782775371597-14d5440c-e385-4904-bd65-d2733dc99cee.jpeg" alt="image" width="400" /> cr.watcherbittes you have such a lovely style..
+<img src="https://www.image2url.com/r2/default/images/1782775371597-14d5440c-e385-4904-bd65-d2733dc99cee.jpeg" alt="image" width="400" /> 
+cr.watcherbittes you have such a lovely style..
